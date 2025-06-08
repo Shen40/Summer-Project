@@ -1,3 +1,0 @@
-# Summer-Project-
-Shen 
-Ryan
